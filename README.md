@@ -1,1 +1,1 @@
-ilk üç video için olan sayfalar
+ödev
